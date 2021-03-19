@@ -1,0 +1,7 @@
+½ cup urad dal (or whole skinned black gram)
+¾ to 1 cup water (to blend dal)
+1½ cups rice (Refer notes)
+½ cup water (to blend rice, may need 2 tbsps more)
+2 tablespoon chana dal (bengal gram)
+½ teaspoon fenugreek seeds (methi seeds) (optional)
+2 tablespoon poha (flattened rice)
